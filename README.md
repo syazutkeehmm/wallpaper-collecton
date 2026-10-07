@@ -1,12 +1,20 @@
 # --Wallpaper save collections-- 
 Credit to all original artist and uploader
+
 -artix
+
 -danswart
+
 -skcs
+
 -flareon69
+
 -ultimatewaste
+
 -silriti
+
 -tiv311
+
 
 -All wallpaper were from wallhaven and google-
 
